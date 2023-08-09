@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **udaynaidu1025@gmail.com**
 
-- 📄 Know about my experiences [xyz.com](xyz.com)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1JurRcUNMZ8QMSF45Iy4DrjLbroKmwfTZ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
